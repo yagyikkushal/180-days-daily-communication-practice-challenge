@@ -9,3 +9,6 @@
 
 ## ✅ Day 2 – June 23, 2025
 - 🎥 [Watch Video](https://youtu.be/48va2gG4vvM))
+
+## ✅ Day 3 – June 24, 2025
+- 🎥 [Watch Video](https://youtu.be/tteilN4lTLQ)))
