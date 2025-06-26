@@ -15,3 +15,6 @@
 
 ## ✅ Day 4 – June 25, 2025
 - 🎥 [Watch Video](https://youtu.be/grc9EpgV-Cs)
+
+## ✅ Day 5 – June 26, 2025
+- 🎥 [Watch Video](https://youtu.be/8C_CCPYkny4)
