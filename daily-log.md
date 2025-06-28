@@ -21,3 +21,6 @@
 
 ## ✅ Day 6 – June 27, 2025
 - 🎥 [Watch Video](https://youtu.be/x3JfCD9u5MA)
+
+## ✅ Day 7 – June 28, 2025
+- 🎥 [Watch Video](https://youtu.be/ZMgK_C01L80)
