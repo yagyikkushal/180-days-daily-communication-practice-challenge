@@ -27,3 +27,6 @@
 
 ## ✅ Day 8 – June 29, 2025
 - 🎥 [Watch Video](https://youtu.be/MIeVHjMYfHo)
+
+## ✅ Day 9 – June 30, 2025
+- 🎥 [Watch Video](https://youtu.be/8sleSdyDDQM)
