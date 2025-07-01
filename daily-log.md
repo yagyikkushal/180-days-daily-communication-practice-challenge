@@ -30,3 +30,6 @@
 
 ## ✅ Day 9 – June 30, 2025
 - 🎥 [Watch Video](https://youtu.be/8sleSdyDDQM)
+
+## ✅ Day 10 – July 01, 2025
+- 🎥 [Watch Video](https://youtu.be/2iORme-gC4U)
