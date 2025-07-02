@@ -33,3 +33,6 @@
 
 ## ✅ Day 10 – July 01, 2025
 - 🎥 [Watch Video](https://youtu.be/2iORme-gC4U)
+
+## ✅ Day 11 – July 02, 2025
+- 🎥 [Watch Video](https://youtu.be/o2I7Fwm9ijI)
