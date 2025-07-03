@@ -36,3 +36,6 @@
 
 ## ✅ Day 11 – July 02, 2025
 - 🎥 [Watch Video](https://youtu.be/o2I7Fwm9ijI)
+
+## ✅ Day 12 – July 03, 2025
+- 🎥 [Watch Video](https://youtu.be/Dxpiu5oad3M)
