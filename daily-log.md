@@ -42,3 +42,6 @@
 
 ## ✅ Day 13 – July 04, 2025
 - 🎥 [Watch Video](https://youtu.be/9LqKTvYTt0Q)
+
+## ✅ Day 14 – July 05, 2025
+- 🎥 [Watch Video](https://youtu.be/92TBfbVnVmU)
