@@ -45,3 +45,6 @@
 
 ## ✅ Day 14 – July 05, 2025
 - 🎥 [Watch Video](https://youtu.be/92TBfbVnVmU)
+
+## ✅ Day 15 – July 06, 2025
+- 🎥 [Watch Video](https://youtu.be/KTAZu5QY9Jc)
