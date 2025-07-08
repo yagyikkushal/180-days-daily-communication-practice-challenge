@@ -51,3 +51,6 @@
 
 ## ✅ Day 16 – July 07, 2025
 - 🎥 [Watch Video](https://youtu.be/2sFy6QINQTo)
+
+## ✅ Day 17 – July 08, 2025
+- 🎥 [Watch Video](https://youtu.be/HgVrK6pLnK4)
