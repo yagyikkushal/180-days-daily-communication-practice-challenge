@@ -54,3 +54,6 @@
 
 ## ✅ Day 17 – July 08, 2025
 - 🎥 [Watch Video](https://youtu.be/HgVrK6pLnK4)
+
+## ✅ Day 18 – July 09, 2025
+- 🎥 [Watch Video](https://youtu.be/X6L2STZS7Gw)
