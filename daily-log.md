@@ -60,3 +60,6 @@
 
 ## ✅ Day 19 – July 10, 2025
 - 🎥 [Watch Video](https://youtu.be/34FwyXeV1Qk)
+
+## ✅ Day 20 – July 11, 2025
+- 🎥 [Watch Video](https://youtu.be/Cw-lv7u7IgI)
