@@ -63,3 +63,6 @@
 
 ## ✅ Day 20 – July 11, 2025
 - 🎥 [Watch Video](https://youtu.be/Cw-lv7u7IgI)
+
+## ✅ Day 21 – July 12, 2025
+- 🎥 [Watch Video](https://youtu.be/B0Pbp8bzqKs)
