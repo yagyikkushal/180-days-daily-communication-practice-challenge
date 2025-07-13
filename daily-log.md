@@ -66,3 +66,6 @@
 
 ## ✅ Day 21 – July 12, 2025
 - 🎥 [Watch Video](https://youtu.be/B0Pbp8bzqKs)
+
+## ✅ Day 22 – July 13, 2025
+- 🎥 [Watch Video](https://youtu.be/MiGhYlbxY2k)
