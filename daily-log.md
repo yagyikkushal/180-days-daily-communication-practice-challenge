@@ -78,3 +78,6 @@
 
 ## ✅ Day 25 – July 16, 2025
 - 🎥 [Watch Video](https://youtu.be/jjBaoDgayZQ)
+
+## ✅ Day 26 – July 17, 2025
+- 🎥 [Watch Video](https://youtu.be/_DkAt0wE4wE)
