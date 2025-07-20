@@ -87,3 +87,6 @@
 
 ## ✅ Day 28 – July 19, 2025
 - 🎥 [Watch Video](https://youtu.be/8zmGhM1W8ms)
+
+## ✅ Day 29 – July 20, 2025
+- 🎥 [Watch Video](https://youtu.be/6RBZt0K-oMM)
