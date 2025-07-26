@@ -105,3 +105,6 @@
 
 ## ✅ Day 34 – July 25, 2025
 - 🎥 [Watch Video](https://youtu.be/Fva4mAprJDA)
+
+## ✅ Day 35 – July 26, 2025
+- 🎥 [Watch Video](https://youtu.be/U_CNPUBEVNw)
