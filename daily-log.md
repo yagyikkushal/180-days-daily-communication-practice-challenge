@@ -103,11 +103,11 @@
 ## ✅ Day 33 – July 24, 2025
 - 🎥 [Watch Video](https://youtu.be/Uxn4UZAsbAc)
 
-## ✅ Day 33 – July 24, 2025
+## ✅ Day 34 – July 24, 2025
 - 🎥 [Watch Video](https://youtu.be/Uxn4UZAsbAc)
 
-## ✅ Day 34 – July 25, 2025
+## ✅ Day 35 – July 25, 2025
 - 🎥 [Watch Video](https://youtu.be/Fva4mAprJDA)
 
-## ✅ Day 35 – July 26, 2025
+## ✅ Day 36 – July 27, 2025
 - 🎥 [Watch Video](https://youtu.be/0GDC647akFQ)
