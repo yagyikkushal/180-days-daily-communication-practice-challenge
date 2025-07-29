@@ -114,3 +114,6 @@
 
 ## ✅ Day 37 – July 28, 2025
 - 🎥 [Watch Video](https://youtu.be/uGLeE4VN6ms)
+
+## ✅ Day 38 – July 29, 2025
+- 🎥 [Watch Video](https://youtu.be/33rlQ_Uh1TY)
