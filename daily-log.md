@@ -120,3 +120,6 @@
 
 ## ✅ Day 39 – July 30, 2025
 - 🎥 [Watch Video](https://youtu.be/GWYBMkTWxHk)
+
+## ✅ Day 40 – July 31, 2025
+- 🎥 [Watch Video](https://youtu.be/UAbuG0fzm58)
