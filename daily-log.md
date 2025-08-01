@@ -123,3 +123,6 @@
 
 ## ✅ Day 40 – July 31, 2025
 - 🎥 [Watch Video](https://youtu.be/UAbuG0fzm58)
+
+## ✅ Day 41 – August 01, 2025
+- 🎥 [Watch Video](https://youtu.be/40UoDJPYZ8E)
