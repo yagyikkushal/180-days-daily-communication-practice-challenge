@@ -132,3 +132,6 @@
 
 ## ✅ Day 43 – August 03, 2025
 - 🎥 [Watch Video](https://youtu.be/ps150VsDgXY)
+
+## ✅ Day 44 – August 04, 2025
+- 🎥 [Watch Video](https://youtu.be/-cEib_EJRKE)
