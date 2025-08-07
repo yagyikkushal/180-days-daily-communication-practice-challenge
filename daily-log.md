@@ -141,3 +141,6 @@
 
 ## ✅ Day 46 – August 06, 2025
 - 🎥 [Watch Video](https://youtu.be/5iVhGU-OBXc)
+
+## ✅ Day 47 – August 07, 2025
+- 🎥 [Watch Video](https://youtu.be/_9oSdw0ojhc)
