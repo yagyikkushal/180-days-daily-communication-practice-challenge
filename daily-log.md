@@ -156,3 +156,6 @@
 
 ## ✅ Day 51 – August 11, 2025
 - 🎥 [Watch Video](https://youtu.be/laqW3nm7fxs)
+
+## ✅ Day 52 – August 12, 2025
+- 🎥 [Watch Video](https://youtu.be/1DhOS8gbnPQ)
