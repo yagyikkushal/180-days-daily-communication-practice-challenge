@@ -174,3 +174,6 @@
 
 ## ✅ Day 57 – August 17, 2025
 - 🎥 [Watch Video](https://youtu.be/nZ0baFiNEOA)
+
+## ✅ Day 58 – August 18, 2025
+- 🎥 [Watch Video](https://youtu.be/Ri1ARmoVxDg)
