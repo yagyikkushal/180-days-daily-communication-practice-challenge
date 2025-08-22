@@ -186,3 +186,6 @@
 
 ## ✅ Day 61 – August 21, 2025
 - 🎥 [Watch Video]
+
+## ✅ Day 62 – August 22, 2025
+- 🎥 [Watch Video](https://youtu.be/BDA1ZRzmhxw)
