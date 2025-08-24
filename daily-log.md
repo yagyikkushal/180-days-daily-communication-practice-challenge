@@ -185,10 +185,13 @@
 - 🎥 [Watch Video](https://youtu.be/8gyccSfkatk)
 
 ## ✅ Day 61 – August 21, 2025
-- 🎥 [Watch Video]
+- 🎥 [Watch Video](https://youtu.be/sjSlL25jmSg)
 
 ## ✅ Day 62 – August 22, 2025
 - 🎥 [Watch Video](https://youtu.be/BDA1ZRzmhxw)
 
 ## ✅ Day 63 – August 23, 2025
 - 🎥 [Watch Video](https://youtu.be/paCZCnZlfhQ)
+
+## ✅ Day 64 – August 24, 2025
+- 🎥 [Watch Video](https://youtu.be/j0LPVR-Exgc)
