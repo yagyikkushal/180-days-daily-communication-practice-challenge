@@ -195,3 +195,6 @@
 
 ## ✅ Day 64 – August 24, 2025
 - 🎥 [Watch Video](https://youtu.be/j0LPVR-Exgc)
+
+## ✅ Day 65 – August 25, 2025
+- 🎥 [Watch Video](https://youtu.be/c3-JulFIMKA)
