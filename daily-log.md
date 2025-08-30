@@ -203,7 +203,13 @@
 - 🎥 [Watch Video](https://youtu.be/Vl1K_sRJPEI)
 
 ## ✅ Day 67 – August 27, 2025
-- 🎥 [Watch Video]
+- 🎥 [Watch Video](https://youtu.be/LFOG-K6JrIs)
 
 ## ✅ Day 68 – August 28, 2025
+- 🎥 [Watch Video](https://youtu.be/pdHXwxvsKVo)
+
+## ✅ Day 69 – August 29, 2025
+- 🎥 [Watch Video](https://youtu.be/tAGAfFvRh5I)
+
+## ✅ Day 70 – August 30, 2025
 - 🎥 [Watch Video]
