@@ -212,4 +212,7 @@
 - 🎥 [Watch Video](https://youtu.be/tAGAfFvRh5I)
 
 ## ✅ Day 70 – August 30, 2025
-- 🎥 [Watch Video]
+- 🎥 [Watch Video](https://youtu.be/uy_xf5XISX4)
+
+## ✅ Day 71 – August 31, 2025
+- 🎥 [Watch Video](https://youtu.be/2oYQMoBTVZ8)
