@@ -216,3 +216,9 @@
 
 ## ✅ Day 71 – August 31, 2025
 - 🎥 [Watch Video](https://youtu.be/2oYQMoBTVZ8)
+
+## ✅ Day 72 – August 01, 2025
+- 🎥 [Watch Video]
+
+## ✅ Day 73 – August 02, 2025
+- 🎥 [Watch Video]
