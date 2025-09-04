@@ -218,7 +218,13 @@
 - 🎥 [Watch Video](https://youtu.be/2oYQMoBTVZ8)
 
 ## ✅ Day 72 – August 01, 2025
-- 🎥 [Watch Video]
+- 🎥 [Watch Video](https://youtu.be/DEtYg2wV9Bw)
 
 ## ✅ Day 73 – August 02, 2025
-- 🎥 [Watch Video]
+- 🎥 [Watch Video](https://youtu.be/P5THrsomYW8)
+
+## ✅ Day 74 – August 03, 2025
+- 🎥 [Watch Video](https://youtu.be/miw-YN8yTKk)
+
+## ✅ Day 75 – August 04, 2025
+- 🎥 [Watch Video](https://youtu.be/sQjs6Fs-EEI)
