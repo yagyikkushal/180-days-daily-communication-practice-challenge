@@ -228,3 +228,9 @@
 
 ## ✅ Day 75 – August 04, 2025
 - 🎥 [Watch Video](https://youtu.be/sQjs6Fs-EEI)
+
+## ✅ Day 76 – August 05, 2025
+- 🎥 [Watch Video]
+
+## ✅ Day 77 – August 06, 2025
+- 🎥 [Watch Video]
